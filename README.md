@@ -1,4 +1,4 @@
 # RobloxScript
-Full bright and Parvus Hub.
 
-You can get Parvus Hub from https://discord.gg/95D6uhE8uQ Parvus Hub is not mine.
+
+Full bright for roblox, Join my server. https://discord.gg/zdcUZpFj
